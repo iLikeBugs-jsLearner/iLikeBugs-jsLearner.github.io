@@ -1,5 +1,7 @@
 <!DOCTYPE html>
+
 <body>
+  <title>My poop</title>
   <h1>My poop</h1>
   <h2>About my poop</h2>
   <h3>My poop ranges to many things like blue red yellow and brown sometimes black or bloody red</h3>
