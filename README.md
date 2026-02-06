@@ -1,3 +1,4 @@
+<!DOCTYPE html>
 <body>
   <h1>My poop</h1>
   <h2>About my poop</h2>
