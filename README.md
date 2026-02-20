@@ -1,16 +1,13 @@
 <!DOCTYPE html>
 
 <body>
-  <title>My poop</title>
+  <head><title>My poop</title></head>
   <h1>My poop</h1>
   <h2>About my poop</h2>
   <h3>My poop ranges to many things like blue red yellow and brown sometimes black or bloody red</h3>
   <h3>Features</h3>
-  <h2>some features are corn but since ###'s hair is kinda yellow i ate it so my poop gets kinda well hairy XD</h2>
-  <h3>hmmmm hmmm hmmm T33gy i think im able to make a website for you but idky if you think this one looks good i prob could but itll be ugly not going lie and also if guys want me to use your name lemme know</h3>
-  <h2>and cinderilla  I am NOT A SKIN WALKER BOI OKAY?</h3>
+  <h2>some features are corn but since leo's hair is kinda yellow i ate it so my poop gets kinda well hairy XD</h2>
   <h1>stop ice no ones iilegal wait  can i write bad words here? let me try POOP YOU WHAT THE HECK</h1>
-  <h3>and if you didnt know that this is my website then lets say hmmmmm green i am GREEN green green green also T30 ISNT it crazy how you got the red paper dot in miss NI(Hels room during miss N0SH#r remenber?</h3>
   <h1>SUMO cells</h1>
   <h2>sumo cells are cells in your brain that pull down your hair you see when your young your hair starts big like fluffly like L30's so your parents comb you down so your hair goes to normal</h2>
   <h3>but if you over train your sumo cells you will become BALD due to your sumo cells pulling the hair down it will  break through your skull then hitting you brain which can be DEADLY</h3>
@@ -23,8 +20,11 @@
   <h1>this is called photo of me and your seeing the first img i posted*5 minutes later i dont work lol*</h1>
 
 
-  <img src=""  />
+  <img src="https://static.vecteezy.com/system/resources/previews/016/634/631/large_2x/special-christmas-poop-turds-cookies-on-baking-sheet-free-photo.jpg"  />
+  <h4>just in case i found this img from vecteezy and i think Arkadij Schel make it to yea</h4>
+  <h1>█████████████████████████████████████████████</h1>
+  <h1>███ only has access to know what im making</h1>
 
 
-    
+  <  
 </body>
