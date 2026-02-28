@@ -18,7 +18,7 @@
   <p>remenber if this website gets blocked they cant block the google slide😈</p>
   <a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p" target="_blank">LINK HERE PLS DONT SCROLL PAST ME</a>
 
-  <h1>this is called photo of me and your seeing the first img i posted*5 minutes later i dont work lol*</h1>
+  <h1>this is called photo of me and your seeing the first img i posted*5 minutes later i dont work lol* NEVERMIND I FIXED ITT *unless your on chromebook*</h1>
 
 
   <img src="https://static.vecteezy.com/system/resources/previews/016/634/631/large_2x/special-christmas-poop-turds-cookies-on-baking-sheet-free-photo.jpg"  />
