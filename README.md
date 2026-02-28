@@ -16,7 +16,7 @@
   <P>i will make a google slide on a burner account link it into this website for all of the proxies allowing you to play unblocked games</P>
   <p>by doing this there will be a abusrd amount of websites making it harder to block</p>
   <p>remenber if this website gets blocked they cant block the google slide😈</p>
-  <a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p" target="_blank">link</a>
+  <a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p" target="_blank">LINK HERE PLS DONT SCROLL PAST ME</a>
 
   <h1>this is called photo of me and your seeing the first img i posted*5 minutes later i dont work lol*</h1>
 
