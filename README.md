@@ -1,7 +1,8 @@
 <!DOCTYPE html>
 
 <body>
-  
+  <h1>page views</h1>
+  <span class="pageViewsCounter"><h1>0</h1></span>
   <h1>SUMO cells</h1>
   <h2>sumo cells are cells in your brain that pull down your hair you see when your young your hair starts big like fluffly like L30's so your parents comb you down so your hair goes to normal</h2>
   <h3>but if you over train your sumo cells you will become BALD due to your sumo cells pulling the hair down it will  break through your skull then hitting you brain which can be DEADLY</h3>
