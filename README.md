@@ -1,3 +1,4 @@
+<a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p">NO ONE CARES ABOUT THAT CRAP BELLOW HERES THE WEBSITE *click this text*>
 <h1>the website crashed getting fixxed but we  have some grave information</h1>
 <p>i thought we were just beining blocked by cisco umbrella but the real thing has been hiding</p>
 <img src="https://sp-ao.shortpixel.ai/client/to_webp,q_lossless,ret_img,w_1024,h_904/https://www.lightspeedsystems.com/wp-content/uploads/2025/09/Insight-Webpage-Screenshots-01-3-1024x904.png">
