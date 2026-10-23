@@ -1,1 +1,61 @@
-<a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p">NO ONE CARES ABOUT THAT CRAP BELLOW HERES THE WEBSITE *click 
+<a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit?slide=id.p#slide=id.p">google slide closing soon and were going focus on this website its more secure</a>
+<p>it closes on halloween</p>
+<h1>unblocked games</h1>
+<p>theese arent my websites im just sharing them here
+<a href="https://docs.google.com/presentation/d/1j3F-HUfHW7H6eGZre8HgBYIT6CIMbQ9x_kF6QT9v64E/edit" target="_blank" rel="noopener noreferrer">Visit the googledoc*closing soon*</a>
+
+<p>if you encounter like anything broken heres a link</P>
+<a href="report" targert="_blank" rel="noopener noreferrer">report it here</a>
+<P>also uh if anyone says I MADE THIS there lying cus if i share it to you ill just be like oh i found this</P>]
+<p>also if a 7 or 8th grader sees this a sixlet made this lmao😆</p>
+<h1>GAMES</h1>
+<ul>
+<Li><a href="https://sites.google.com/view/dominumnetworkv2/entertainment/gm3s " target="_blank" rel="noopener noreferrer">dnv2 839 games</a></Li>
+<li><a href="https://sites.google.com/view/prohomework2z/dictionary" target="_blank" rel="noopener noreferrer">ProGS27 270 games </a></li>
+<li><a href="https://storage.googleapis.com/dogeub/index.html#/docs" target="_blank" rel="noopener noreferrer">EDU-static 626 games</a></li>
+<li><a href="https://cdn.jsdelivr.net/gh/NightProxy/DD-Static/dist/index.svg" target="_blank" rel="noopener noreferrer">DayDream X games,movies, and a hole webroswer</a></li>
+<li><a href="https://d1w7oj52hl4x53.cloudfront.net/" target="_blank" rel="noopener noreferrer">fern games,ai,music,movies and a webroswer too so basicly anything blocked on google isnt blocked on there</a></li>
+<li><a href="https://cdn.jsdelivr.net/gh/lucideproxy/svg@latest/logo.svg#/" target="_blank" rel="noopener noreferrer">lucide, has tiktok n youtube and alot more</a></li>
+<li><a href="https://roblox-unblock.github.io/category/multiplayer.html#google_vignette" target="_blank" rel="noopener noreferrer">game website has adds</a></li>
+<li><a href="https://classroomx6.github.io/" target="_blank" rel="noopener noreferrer">unblocked games x6</a></li>
+<li><a href="https://catfoolyou.github.io/Website-v2/" target="_blank" rel="noopener noreferrer">not alot of games but very intresting ones</a></li>
+<li><a href="https://sites.google.com/classroom.center/view-1/home" target="_blank" rel="noopener noreferrer">low budget game god 😭</a></li>
+<li><a href="https://evilmonke.github.io/" target="_blank" rel="noopener noreferrer">monkeygg2 *evil one*</a></li>
+<li><a href="https://doctoraux.com/" target="_blank" rel="noopener noreferrer">BEST ONE HAS ROBLOX *if it isnt blocked hopefuly</a></li>
+<li><a href="https://watermelon46.com/" target="_blank" rel="noopener noreferrer">watermelon46 alot indiegames</a></li>
+<li><a href="https://dmectexas.org/g#google_vignette" target="_blank" rel="noopener noreferrer">qauser basicly just a unblocked everything webrowser</a></li>
+<li><a href="https://t9os.space/class.html" target="_blank" rel="noopener noreferrer"> T9 OSvery good just press the 🏠 house icon ontop of your screen for the main stuff and close any pop ups like adds or scams</a></li>
+<h1>more games</h1>
+<li><a href="https://dubdoo.com/#google_vignette" target="_blank" rel="noopener noreferrer">dubdoo games mid got adds</a></li>
+<li><a href="https://genizymath.github.io/#google_vignette" target="_blank" rel="noopener noreferrer">genizymath.42 games and basicly all of them are indie games</a></li>
+<li><a href="https://quack-learn.web.app/#google_vignette" target="_blank" rel="noopener noreferrer">duckmath.fast fashion of games its like all moible add games type stuff</a></li>
+<li><a href="https://d2quc4oxlcm8y8.cloudfront.net/" target="_blank" rel="noopener noreferrer">cheesy games alot of indiesgames in it</a></li>
+<li><a href="https://www.study4class.com/" target="_blank" rel="noopener noreferrer">READ: go into calculator in this website then press "6767" then press C not = PRESS C and a secret game acarde will show</a></li>
+<li><a href="https://calcsolver.net/" target="_blank" rel="noopener noreferrer">READ: turn on code mode on this websites calculator and type "0000" it should open a secret gaming acarde too</a></li>
+<li><a href="https://clever.pbseducation1914.org/" target="_blank" rel="noopener noreferrer">truffled. think as it as google but in a website that puts website in the website so basicly in dumb dumb terms its unblocked</a></li>
+<li><a href="https://jrdnmath.global.ssl.fastly.net/" target="_blank" rel="noopener noreferrer">jrdnmath just vertyfy and close off adds</a></li>
+<li><a href="https://lavishlylearning.com/library#google_vignette" target="_blank" rel="noopener noreferrer">game website</a></li>
+<li><a href="https://sites.google.com/view/dasprunkplus" target="_blank" rel="noopener noreferrer">basicly just indie games here and classic ones</a></li>
+<li><a href="https://www.ravbug.com/hypertranslate/" target="_blank" rel="noopener noreferrer">translates words many times like for explample poop translated 50 times is lion😭</a></li>
+<li><a href="https://highschoolmathteachers.com/math/" target="_blank" rel="noopener noreferrer">big game web</a></li>
+<li><a href="https://dnstwist.it/" target="_blank" rel="noopener noreferrer">finds fake websites like if you search up google itll find all the fake copys of google that pop up if you make a typo to SCAM YOU so be carefull</a></li>
+<li><a href="https://docs.google.com/document/d/10fxXC-ZYHu967u0VEA5kO0c6Vq0jVOh5KPw21smPSfY/edit?tab=t.t341bwc1qe0k" target="_blank" rel="noopener noreferrer">movies to watch yeyyy</a></li>
+<h1>sigh i kinda whent overboard with this upd so tmr might be delayed BUT EVEN MORE MORE MORE MORE GAMESSSS SHOW MUST GO ON</h1>
+<li><a href="https://mathkit.online/" target="_blank" rel="noopener noreferrer">put in 0000 for unblocked games👀</a></li>
+<li><a href="https://desync.b-cdn.net/" target="_blank" rel="noopener noreferrer">desync *crazy good so ima add all of the links incase this one blocked</a></li>
+<li><a href="https://saintmerrymarais.com/" target="_blank" rel="noopener noreferrer">material. pretty decent</a></li>
+<li><a href="https://studioexpresstt.com/" target="_blank" rel="noopener noreferrer">crazy good even got movies AND ANIMEI????</a></li>
+<li><a href="https://zakaon.top/study.html" target="_blank" rel="noopener noreferrer">zaka games</a></li>
+<li><a href="https://mathcheck.net/" target="_blank" rel="noopener noreferrer">turn on code mode and type 0000</a></li>
+<li><a href="https://www.brendon1555.com/dogeclicker/" target="_blank" rel="noopener noreferrer">unblocked doge clicker</a></li>
+<li><a href="https://vertexosweb.b-cdn.net/" target="_blank" rel="noopener noreferrer">press enter twice to skip cutscene</a></li>
+<li><a href="https://algebra.grammar.calculus.english.campus.elyandas.com/" target="_blank" rel="noopener noreferrer">press allow contiune to clever ITS FAKE CLEVER</a></li>
+<li><a href="https://drinks.hotel-ramina.ro/" target="_blank" rel="noopener noreferrer">BOBA broswer rlly cute check it out</a></li>
+<li><a href="https://figure-cloud.figure-softwares.workers.dev/" target="_blank" rel="noopener noreferrer">figure cloud very fancy</a></li>
+<li><a href="https://gelaoshi.global.ssl.fastly.net/" target="_blank" rel="noopener noreferrer">vapor v3</a></li>
+<li><a href="https://smartbio.2660010.com/" target="_blank" rel="noopener noreferrer">lunar v2</a></li>
+<li><a href="https://cipher.2660010.com/" target="_blank" rel="noopener noreferrer">TUNG TUNG GAMING *hover your mouse over the home icon to open up games and stuff</a></li>
+<li><a href="https://meal.airlinemeals.net/" target="_blank" rel="noopener noreferrer">study hub execpt for its gamesss</a></li>
+<p>well thats it for the 10/22/2026 update GIANT update lol</p>
+</ul>
+<h1>next update 10/23/2026</h1>
